@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tanvisal
 - 👀 I’m interested in Web Developnment 
 - 🌱 I’m currently studying at Smt. Kashibai Navale College of Engineering, Pune
-- 💬 Ask me about my hostel days.
+- 💬 Ask me about my University memories.
 - 📫 How to reach me tanvisanjaysalunke31@gmail.com 
 - 😄 Pronouns: She/Her
 
